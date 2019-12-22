@@ -7,8 +7,8 @@ Tu nájdete informácie o cigaretách, elektronických cigaretách a šnupacím 
 [tabakove.info](https://3quilibrium3.github.io/tabakove.info "Tabakové.info")
 
 ## Kontakt
-[3quilibrium3@gmail.com](mailto:3quilibrium3@gmail.com "Email")
-https://forms.gle/ibXsTZxyxkvcvnPVA
+[3quilibrium3@gmail.com](mailto:3quilibrium3@gmail.com "Email")  
+[bit.ly/TabakoveInfo](bit.ly/TabakoveInfo "Spätná väzba")
 
 ## Autor
 Matyáš Miksa  
